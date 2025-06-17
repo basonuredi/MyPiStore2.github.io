@@ -1,1 +1,1 @@
-# MyPiStore2.github.io
+# joycareday-pinet.github.io
